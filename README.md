@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @saraimoreno1
 - 👀 I’m interested in Beauty/Fashion, Latin music, tech
 - 🌱 I’m currently learning CompSci
-- 💞️ I’m looking to collaborate on soemthing related to tech and beauty
+- 💞️ I’m looking to collaborate on something related to tech and beauty
 - 📫 How to reach me ...
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Im a twin!
